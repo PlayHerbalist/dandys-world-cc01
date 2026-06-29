@@ -1,4 +1,4 @@
-
+Experience run for brainrots like never before with top Scripts for run for brainrots, the #1 Script. Includes anti-ban and infinite resources for
 
 
 
